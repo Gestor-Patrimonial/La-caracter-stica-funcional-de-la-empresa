@@ -1,0 +1,1 @@
+# La-caracter-stica-funcional-de-la-empresa
